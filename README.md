@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me (get popularaty)
 - 😄 Pronouns: he/him/his
-- ⚡ Fun fact: how am i suppoused to do
+- ⚡ Fun fact: did you know? every current popularatiy is 8billion.
 
 <!---
 DimasGitHubOfficial/DimasGitHubOfficial is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
